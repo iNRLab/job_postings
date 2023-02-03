@@ -5,7 +5,7 @@ Within the **Integrative Neuromodulation and Recovery (iN*R) Lab** directed by D
 
 **You can find a recent posting [here](https://urldefense.com/v3/__https://www.dropbox.com/s/7pqotx5yseuzfd3/Join_iNRlab_2023.pdf?dl=0__;!!Ab1_Rw!HW0onqPh1Gxs7j17YG3PTq4YurxHn5yDTHaCSX3T1LgEphrY2w-7yMuc-es8UDOcCvOIQ3GTxW_RLgctIZlZ-eSxDzCgUg$)**
 
-In the iN*R lab, we embrace an inclusive working environment and expect openness to interdisciplinary work and collaboration, including the willingness to communicate and exchange knowledge with international team members of various professional disciplines and cultural backgrounds. The Medical University of South Carolina is an equal opportunity employer and makes employment decisions without regard to race, age, gender, gender identity, disability, or protected veteran status. 
+In the iN*R lab, we embrace an inclusive working environment and expect openness to interdisciplinary work and collaboration, including the willingness to communicate and exchange knowledge with international team members of various professional disciplines and cultural backgrounds. 
 
 Our lab is part of the [NIH Center of Biomedical Research Excellence in Stroke Recovery](https://chp.musc.edu/research/stroke-recovery) at the Medical University of South Carolina, and we collaborate with the [Brain Stimulation Lab](https://medicine.musc.edu/departments/psychiatry/divisions-and-programs/divisions/bsl), and the [Center for Biomedical Imaging](https://medicine.musc.edu/departments/centers/cbi) and are involved in the [NIH National Center of Neuromodulation for Rehabilitation](https://chp.musc.edu/research/nc-nm4r/about-ncnm4r). 
 
